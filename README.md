@@ -1,2 +1,1 @@
- yuri alberto gigante 
-neymar meu ovo 
+é gol do rony

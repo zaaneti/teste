@@ -1,1 +1,1 @@
-é gol do rony
+Pintou notificação é gol do rony
